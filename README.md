@@ -1,1 +1,1 @@
-# personal
+https://shmueltopo.github.io/personal/
